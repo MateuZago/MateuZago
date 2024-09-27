@@ -2,11 +2,11 @@
 ### Me chamo _Mateus_
 
 
-● Estudante
-● Curto rock 
-● Jojo's Bizarre Adventure 🔛🔝
-● Aprendendo uns bagulho na Alura 
-● 
+-Estudante
+-Curto rock 
+-Jojo's Bizarre Adventure 🔛🔝
+-Aprendendo uns bagulho na Alura 
+
 
 
 
