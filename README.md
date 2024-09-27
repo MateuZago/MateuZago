@@ -3,9 +3,12 @@
 
 
 -Estudante
+
 -Curto rock 
+
 -Jojo's Bizarre Adventure 🔛🔝
--Aprendendo uns bagulho na Alura 
+
+-Aprendendo uns bagulho na Alura
 
 
 
