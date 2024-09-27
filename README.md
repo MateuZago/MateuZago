@@ -8,7 +8,9 @@
 
 -Jojo's Bizarre Adventure 🔛🔝
 
--Aprendendo uns bagulho na Alura
+-Aprendendo programação na Alura
+
+-
 
 
 
