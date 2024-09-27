@@ -4,7 +4,7 @@
 
 ● Estudante
 ● Curto rock 
-## ● Jojo's Bizarre Adventure 🔛🔝
+● Jojo's Bizarre Adventure 🔛🔝
 ● Aprendendo uns bagulho na Alura 
 ● 
 
